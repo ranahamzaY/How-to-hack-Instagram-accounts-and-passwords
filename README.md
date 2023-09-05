@@ -1,6 +1,5 @@
 <p>&nbsp;</p><h1 style="text-align: justify;"><b><span lang="EN-GB">How to
 hack Instagram accounts and passwords</span></b><span lang="EN-GB"><o:p></o:p></span></h1>
-![telephone-1235721_640](https://github.com/ranahamzaY/How-to-hack-Instagram-accounts-and-passwords/assets/117764276/e9b4c205-4130-42ba-99bd-b081d6e5829f)
 
 <p class="MsoNormal" style="text-align: justify;"><span lang="EN-GB">&nbsp;</span></p>
 
